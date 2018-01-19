@@ -1,1 +1,22 @@
 # 19sep2017
+
+Welcome every body from batch Septemer 19th 2017
+
+This Repository is created for helping eachother to improve our talents 
+please write your comments
+
+I would like to Welcome all of you Geniouse Developers one by one 
+
+Mr.Reda
+
+Mr.Ammar
+
+Mr.Me(Sharif)
+
+Mr.Mahdi Rasikh
+
+Mr.Sayed Balkhi
+
+Mr.Biruk
+
+Mr.Bibek
